@@ -1,0 +1,2 @@
+# salom-Jizzax
+salom-Jizzax
